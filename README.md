@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Oyindollars! Welcome to my cybersecurity portfolio! Here, you'll find an overview of my work across various cybersecurity domains.
+- 👀 I’m interested in Cybersecurity - Cloud security and GRC
+- 🌱 I’m currently learning about the Cloud and how to secure it. I also enjoy creating Cybersecurity policies and Cybersecurity training slides.
+- 💞️ I’m looking to collaborate on Cybersecurity projects.
+- 📫 You can reach me via email - ifoyinkansola@gmail.com
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: Teaching toddlers at church is my weekend adventure. It can be a little draining but it's fulfilling teaching them about God and watching them grow spiritually!
